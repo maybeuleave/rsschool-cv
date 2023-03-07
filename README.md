@@ -1,1 +1,1 @@
-https://maybeuleave.github.io/rsschool-cv/cv
+https://maybeuleave.github.io/rsschool-cv/
