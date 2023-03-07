@@ -1,1 +1,1 @@
-# rsschool-cv
+https://maybeuleave.github.io/rsschool-cv/cv
